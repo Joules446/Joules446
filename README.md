@@ -1,5 +1,7 @@
 ### Hi there 👋
-
+Mercedes es mejor que Ferrari
+Hamilton > Leclerc
+Mercedes W14
 <!--
 **Joules446/Joules446** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
